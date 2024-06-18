@@ -1,1 +1,1 @@
-Naresh , Jose , João Renato
+Naresh , José , João Renato
